@@ -1,2 +1,2 @@
-star to get best multitool <3  
+star to get d!scord multitool <3  
 ![showcase](image/cryzn.png)
